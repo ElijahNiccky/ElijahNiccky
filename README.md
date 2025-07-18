@@ -18,7 +18,10 @@ _I'm from the Philippines_ 💞!
 --Never ask for dating nor be with me,  I only accept the ones I met irl.-
 -
 I have _Anger issues_ so please be careful!
+
+
 Info 3⚡
+
 -
 I do not ship Doublefedora much. I am a #5 Fruitcake hater! Cry about it.
 Pedphiles, Zoos, Racist _DNI._
