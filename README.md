@@ -1,8 +1,9 @@
 #Ponytown-status-meanings
 ⛔=Semi-afk / playing
 🌙= Away , no resps / Asleep
-#Important-things!
-DNC(Do not copy), IWC(Interact w catious, you can still int with me, I won't bite!<3)
+
+Important-things!
+_DNC(Do not copy), IWC(Interact w catious, you can still int with me, I won't bite!<3)_
 
  //Introduction and pronounce//
 
