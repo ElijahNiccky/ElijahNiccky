@@ -11,10 +11,12 @@ I'm Niccky/Elijah or call me Mona!
 She / Her
 _I'm from the Philippines_ 💞!
     
-    Info 2✨
+   Info 2✨
 *Hobbies*: Drawing, listening to music
 #Important: I may be sometimes a freaky joker, just tell me if you're uncomf!
             I have _Anger issues_ so please be careful!
-
-With a welcome of a Party Noob Bean doodle :3
+Info 3⚡
+I do not ship Doublefedora much. I am a #5 Fruitcake hater! Cry about it.
+Pedphiles, Zoos, Racist _DNI._
+Noob Bean doodle :3
 <img width="819" height="460" alt="Poob" src="https://github.com/user-attachments/assets/c288ee41-5396-458a-a9d7-c08889e360b4" />
