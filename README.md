@@ -1,7 +1,7 @@
 
 <img width="2050" height="85" alt="white_ribboncopy" src="https://github.com/user-attachments/assets/18f61a81-bd39-4779-ab87-ccf88824b47e" />
 
--<img src="https://github.com/user-attachments/assets/792ce9c8-2918-42b0-9616-27edb4dc3c08" width="700" height= "400" />
+-<img src="https://github.com/user-attachments/assets/792ce9c8-2918-42b0-9616-27edb4dc3c08" width="750" height= "500" />
 
 #Ponytown-status-meanings
 
