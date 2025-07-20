@@ -3,7 +3,8 @@
 
 #Ponytown-status-meanings
 ⛔=Semi-afk / playing
-_
+
+
 🌙= Away , no resps / Asleep
 
 Important-things!
