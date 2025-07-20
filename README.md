@@ -43,4 +43,4 @@ So here's a Party Noob Bean doodle :3
 test
 -
 
-<img src="https://github.com/user-attachments/assets/792ce9c8-2918-42b0-9616-27edb4dc3c08" width="300" height= "150" />
+<img src="https://github.com/user-attachments/assets/792ce9c8-2918-42b0-9616-27edb4dc3c08" width="2000" height= "2000" />
