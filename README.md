@@ -1,4 +1,4 @@
-<img width="1000" height="200" alt="white_ribbon" src="https://github.com/user-attachments/assets/ab1fb9c4-5501-40ac-8714-df30f61fdb78" />
+<img width="2000" height="200" alt="white_ribbon" src="https://github.com/user-attachments/assets/ab1fb9c4-5501-40ac-8714-df30f61fdb78" />
 
 ![Princess Two Time](https://github.com/user-attachments/assets/792ce9c8-2918-42b0-9616-27edb4dc3c08)
 
