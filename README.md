@@ -15,7 +15,7 @@ _DNC(Do not copy), IWC(Interact w catious, you can still int with me, I won't bi
 
  //Introduction and pronounce//
 
-I'm Niccky/Elijah or call me Mona!
+I'm Niccky/Elijah or call me Mona or my kin!
 She / Her
 _I'm from the Philippines_ 💞!
   -  
