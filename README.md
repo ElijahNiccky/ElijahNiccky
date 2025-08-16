@@ -24,7 +24,7 @@ _I'm from the Philippines_ 💞!
 
 #Important: I may be sometimes a freaky joker, just tell me if you're uncomf!
 -
---Never ask for dating nor be with me in a romantic relatnship. Unless,  If 1 year age gap to eachother or Ionly accept the ones I met irl.-
+--Never ask for dating nor be with me in a romantic relatnship. Unless,  If 1 year age gap to eachother or I only accept the ones I met irl.-
 -
 I have _Anger issues_ so please be careful!
 
