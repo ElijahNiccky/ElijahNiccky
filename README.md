@@ -2,15 +2,29 @@
 
 [__COIL__:"**You've pissed me off.**"}
 
+__Status meaning diction:__
 
-[Read me WIP]
+-🌙= Away/Asleep/at school/busy/somewhere
 
+-⛔= Semi-afk/Playing
 
+. . I main Subspace, Hyperlaser, Biograft and Vinestaff ^_^ . .
+I LOVE:
 
+ - ♪(´▽｀) -
 
--README 2:
+__Subkit
+Hypertana
+Coilshot__
 
+-INFORMATIONS AND NAME:
 
+  ※⁘ ⁀ **Vendetta/Niccky/Elijah**⁀ ⁘※
+ 
+  . She/Her or Any!     .
+  . A filipino person! <3
+  . Phighting.
+  . I luv my gf SM lalalala~
 
 
 
