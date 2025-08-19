@@ -22,8 +22,11 @@ Coilshot__
   ※⁘ ⁀ **Vendetta/Niccky/Elijah**⁀ ⁘※
  
   . She/Her or Any!     .
+  
   . A filipino person! <3
+  
   . Phighting.
+ 
   . I luv my gf SM lalalala~
 
 
