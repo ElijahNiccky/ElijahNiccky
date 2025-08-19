@@ -20,6 +20,13 @@ __Subkit
 Hypertana
 Coilshot__
 
+ .
+ 
+ -[Important. ]:
+ 
+ **__I have ANGER ISSUES so please, be do careful.__**
+
+ 
 -INFORMATIONS AND NAME:
 
   ※⁘ ⁀ **Vendetta/Niccky/Elijah**⁀ ⁘※
@@ -31,6 +38,10 @@ Coilshot__
   . Phighting.
  
   . I luv my gf SM lalalala~
+
+  . I love to draw but artblock is turned on to me right now :(
+
+  . Slingshot~ Look at me! Look! Slingshot! Awh, are you grumpy? Too bad! ><
 
 <img width="2000" height="497" alt="download (1)" src="https://github.com/user-attachments/assets/2fccb282-4653-4c9e-a9f0-89807539d720" />
 
