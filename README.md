@@ -1,3 +1,17 @@
+<img width="691" height="373" alt="Coil The Hellhound banner for Github" src="https://github.com/user-attachments/assets/a10e3bab-2704-4c17-bf1a-f9e96b69ef4d" />
+
+[__COIL__:"**You've pissed me off.**"}
+
+
+
+
+
+
+
+
+
+
+
 
 <img width="2050" height="85" alt="white_ribboncopy" src="https://github.com/user-attachments/assets/18f61a81-bd39-4779-ab87-ccf88824b47e" />
 
