@@ -1,5 +1,7 @@
 <img width="691" height="373" alt="Coil The Hellhound banner for Github" src="https://github.com/user-attachments/assets/a10e3bab-2704-4c17-bf1a-f9e96b69ef4d" />
 
+. - = * . .👾
+
 [__COIL__:"**You've pissed me off.**"}
 
 __Status meaning diction:__
