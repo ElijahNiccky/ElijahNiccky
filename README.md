@@ -14,13 +14,15 @@ __Status meaning diction:__
 -⛔= Semi-afk/Playing
 
 . . I main Subspace, Hyperlaser, Biograft and Vinestaff ^_^ . .
-I LOVE:
 
+I LOVE:
 
  - ♪(´▽｀) -
 
 __Subkit
+
 Hypertana
+
 Coilshot__
 
  .
