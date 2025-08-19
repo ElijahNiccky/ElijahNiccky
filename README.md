@@ -32,9 +32,10 @@ Coilshot__
 
  
 -INFORMATIONS AND NAME:
+-
 
   ※⁘ ⁀ **Vendetta/Niccky/Elijah**⁀ ⁘※
- -
+ 
   . She/Her or Any!     .
   
   . A filipino person! <3
