@@ -11,6 +11,7 @@ __Status meaning diction:__
 . . I main Subspace, Hyperlaser, Biograft and Vinestaff ^_^ . .
 I LOVE:
 
+
  - ♪(´▽｀) -
 
 __Subkit
@@ -29,7 +30,7 @@ Coilshot__
  
   . I luv my gf SM lalalala~
 
-
+<img width="736" height="497" alt="download (1)" src="https://github.com/user-attachments/assets/2fccb282-4653-4c9e-a9f0-89807539d720" />
 
 <img width="2050" height="85" alt="white_ribboncopy" src="https://github.com/user-attachments/assets/18f61a81-bd39-4779-ab87-ccf88824b47e" />
 
