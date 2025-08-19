@@ -19,11 +19,11 @@ I LOVE:
 
  - ♪(´▽｀) -
 
-__Subkit
+__Subkit__
 
-Hypertana
+__Hypertana__
 
-Coilshot__
+__Coilshot__
 
  .
  
