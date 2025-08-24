@@ -4,7 +4,7 @@
 -
 
 
-[__COIL__:"**Now you've pissed me off!**"]
+[__COIL__:"***Now you've pissed me off!***"]
 
 __Status meaning diction:__
 -
