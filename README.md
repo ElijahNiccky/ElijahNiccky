@@ -1,3 +1,10 @@
+VERY IMPORTANT!
+-
+  __** Dear, people who prefers 16-18+ ppl as friends, I am sorry to interact with you. I am still below 16 somewhere, and yes I do freaky jokes and I am sorry if I am just a below 16 
+   person doing inappropriate jokes, you can un friend me but maybe I will stop doing those jokes since I am still below 16, I am very sorry.
+   I have my reasons why ik freaky jokes and I cannot expose myself in public so, take care!**__
+
+
 <img width="691" height="373" alt="Coil The Hellhound banner for Github" src="https://github.com/user-attachments/assets/a10e3bab-2704-4c17-bf1a-f9e96b69ef4d" />
 
 . - = * . .👾
