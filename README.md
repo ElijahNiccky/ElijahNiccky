@@ -19,13 +19,13 @@ __Status meaning diction:__
 
 -🌙= Away/Asleep/at school/busy/somewhere
 
--⛔= Semi-afk/Playing
+-⛔= <span style="color: red;">Semi-afk , playing</span>
 
 . . I main Subspace, Hyperlaser, Biograft and Vinestaff ^_^ . .
 
 I LOVE:
 
- - ♪(´▽｀) -
+ - ♪(´▽｀) -   
 
 __Subkit__
 
