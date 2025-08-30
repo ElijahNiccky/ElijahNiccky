@@ -1,6 +1,6 @@
 VERY IMPORTANT!
 -
-  __** Dear, people who prefers 16-18+ ppl as friends, I am sorry to interact with you. I am still below 16 somewhere, and yes I do freaky jokes and I am sorry if I am just a below 16 
+  __**Dear, people who prefers 16-18+ ppl as friends, I am sorry to interact with you. I am still below 16 somewhere, and yes I do freaky jokes and I am sorry if I am just a below 16 
    person doing inappropriate jokes, you can un friend me but maybe I will stop doing those jokes since I am still below 16, I am very sorry.
    I have my reasons why I know freaky jokes and I cannot expose myself in public. Please don't be mad at me, you can just unfriend me whatever. I never really like 
    being in trouble at all and people being mad at me for being below 16, I'm sorry. I can't even control year that I can be born in. So, take care!**__
