@@ -151,6 +151,7 @@ Clockwork (I love drawing him, give me some tea 😊) A admin avatar
 ___DUDE I HAVE A LOT OF FAV, ASK ME INSTEAD.___
 So here's a Party Noob Bean doodle :3
 <img width="819" height="460" alt="Poob" src="https://github.com/user-attachments/assets/c288ee41-5396-458a-a9d7-c08889e360b4" />
+Old read me
 
 <img width="2050" height="85" alt="white_ribboncopy" src="https://github.com/user-attachments/assets/18f61a81-bd39-4779-ab87-ccf88824b47e" />
 
