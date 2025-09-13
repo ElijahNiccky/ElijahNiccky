@@ -1,4 +1,10 @@
-![My Colored Text](https://your-image-url.com/my-colored-text.png)
+<math-renderer class="js-inline-math" style="display: inline-block">
+  <math xmlns="http://www.w3.org/1998/Math/MathML">
+    <mrow>
+      <mtext mathvariant="sans-serif" mathcolor="purple">test</mtext>
+    </mrow>
+  </math>
+</math-renderer>
 
 <!--
 **ElijahNiccky/ElijahNiccky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
