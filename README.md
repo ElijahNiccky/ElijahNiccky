@@ -1,5 +1,5 @@
 <div align="center">
-
+![Hoaxmon's](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Spawnels%20Captured&color=000000&style=flat)
 ![Profile Views](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Profile%20views&color=000000&style=flat)
 ## Introduction : , ,
 
