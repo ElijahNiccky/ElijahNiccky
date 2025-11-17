@@ -33,16 +33,16 @@
   ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 </p>
       ࿐ 𝘼𝙣𝙜𝙚𝙧 𝙞𝙨𝙨𝙪𝙚𝙨. 
-    <𝗽>
+    <p></p>
       ࿐ 𝙞𝙬𝙘! 
-     <𝗽></𝗽>
+     <p></p>
       ࿐ 𝘿𝙚𝙢𝙞-𝙧𝙤𝙢𝙖𝙣𝙩𝙞𝙘 / 𝙥𝙖𝙣𝙨𝙚𝙭𝙪𝙖𝙡
-     <𝗽></𝗽>
+     <p>
       ࿐I may act flirty when close friends or for roleplay. Please ask if 
-      <𝗽>
-        <𝗽>
+      <p>
     I'm comfortable if you're about to say an overly sexual joke and I will do the same as always. 
-      ࿐Don't be afraid to confront or tell me you're uncomfortable for my behaviour! 
+      <p>
+        ࿐Don't be afraid to confront or tell me you're uncomfortable for my behaviour! 
    </p>
 ࿐ Please listen closely to my names of my pony. Especially DNIUF, DNI, IWC, DNT. Please as well listen to it. Have some boundaries and think of what will happen to me when you're a stranger who talks to me while I had dniuf and have upset as a status. I may not be in a really well state at times. 
 <p></p>
