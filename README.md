@@ -45,6 +45,11 @@ _______ ⑅*˖•. ·͙*̩̩͙˚̩̥̩̥*̩̩̥͙·̩̩̥͙*̩̩̥͙˚̩̥̩̥*�
  • Don't ask for relationship with me if we never know well to each other. Like info, comfort, etc. 
 <p></p>
           • I shouldn't be dating anyone online, especially just me who's turning 13 atMarch 7th. Don't attack me for how 1 year younger than 13. It's not my fault I am not born in more older years. Whoever only accepts 16+ to 18+ to talk or interact, please forgive me. I never really much tell my age in face to face and chats. I recommend you read my info sites and things since I am too insecure and scared for an argument and harass, complaints of my under teenager age. 
+          <p>
+            •Do not leak any info here. Ik this still leaks my one secret of being underage but please don't talk about it or start a rumor. 
+          <p>
+            Yes, I draw. But mostly insecure of my style too. I hope one day I would also be a famous phighter artist. 
+          </p>
 
 
 
