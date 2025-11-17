@@ -49,6 +49,8 @@ _______ ⑅*˖•. ·͙*̩̩͙˚̩̥̩̥*̩̩̥͙·̩̩̥͙*̩̩̥͙˚̩̥̩̥*�
             •Do not leak any info here. Ik this still leaks my one secret of being underage but please don't talk about it or start a rumor. 
           <p>
             Yes, I draw. But mostly insecure of my style too. I hope one day I would also be a famous phighter artist. 
+          <p>
+            ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
           </p>
 
 
