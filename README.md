@@ -1,5 +1,8 @@
 
-![Profile Views](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Profile%20views&color=000000&style=flat)
+![support the parrot](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Profile%20views&color=000000&style=flat)
+
+
+
 
 
 <div align=center>
