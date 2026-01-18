@@ -30,7 +30,7 @@
    ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
  <p>
    <p>
-    <a href="https://github.com/bloxYaddicted">My Wifies to my Parrot<3</a>
+    <a href="https://github.com/deadfies">My Wifies to my Parrot<3</a>
    <p>
      A person who's a bit interested in arg's and stuffs. 
      big Phightibg fixation! 
