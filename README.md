@@ -1,4 +1,6 @@
-[![Meleeniacs eliminated](https://komarev.com/ghpvc/?username=ElijahNiccky&color=red)](https://github.com/ElijahNiccky)
+![support the parrot](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Meleeniacs%20eliminated&color=FF0000&style=flat)
+
+
 <p></p>
 <div align= center>
 <p>
@@ -7,7 +9,6 @@
   <img width="130" height="190" alt="picmix com_2879861" src="https://github.com/user-attachments/assets/c6bfb2b3-9e20-4ad5-a154-28cbff70b56d" />
 <P>
 )
-   
   <p>
   
 𓂃⟡ ݁ ꒰ Mҽʅҽҽɳιαƈʂ ꒱ ⸝⸝  .ᐟ . 
