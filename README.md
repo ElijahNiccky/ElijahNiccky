@@ -1,9 +1,12 @@
+[![Meleeniacs eliminated](https://komarev.com/ghpvc/?username=ElijahNiccky&color=red)](https://github.com/ElijahNiccky)
+<p></p>
 <div align= center>
 <p>
   ⋆.˚🚬мαт¢нѕтι¢к.ᐟ🔥˚.⋆
 </p>
   <img width="130" height="190" alt="picmix com_2879861" src="https://github.com/user-attachments/assets/c6bfb2b3-9e20-4ad5-a154-28cbff70b56d" />
-
+<P>
+)
    
   <p>
   
