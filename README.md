@@ -28,7 +28,7 @@ ${\textsf{\color{#9c1f1f}    𓂃⟡ ݁ ꒰ Mҽʅҽҽɳιαƈʂ ꒱ ⸝⸝  .ᐟ
   ${\textsf{\color{#FF6347}. ⤷ ゛Call me by kins/ or by my alias.  ˎˊ˗}}$
       <p>
      
-  ${\textsf{\color{#FFA500}  𝘈𝘭𝘪𝘢𝘴: 𝘕𝘪𝘤𝘤𝘬𝘺 / 𝘌𝘭𝘪𝘫𝘢𝘩 / 𝘔𝘴. 𝘛𝘳𝘪𝘱𝘮𝘪𝘯𝘦}}$
+  ${\textsf{\color{#FFA500}  𝘈𝘭𝘪𝘢𝘴: 𝘕𝘪𝘤𝘤𝘬𝘺 / 𝘌𝘭𝘪𝘫𝘢𝘩 / 𝘔𝘳𝘴. 𝘛𝘳𝘪𝘱𝘮𝘪𝘯𝘦}}$
       <p>
         <P>
           <p>
