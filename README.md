@@ -37,7 +37,7 @@ ${\textsf{\color{#9c1f1f}    𓂃⟡ ݁ ꒰ Mҽʅҽҽɳιαƈʂ ꒱ ⸝⸝  .ᐟ
               <p>
                 <p>
                  
-${\textsf{\color{#FF0000}⚙️ . = Iwec due to my anger issues. But it's alright!I won't hurt you or harass you.But do interact catiously.  "}}$
+${\textsf{\color{#FF0000}⚙️ . = Iwec due to my anger issues. But it's alright!I won't hurt you. But do interact catiously.  "}}$
  
   <p>
                    
