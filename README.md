@@ -38,7 +38,7 @@ ${\textsf{\color{#9c1f1f}    𓂃⟡ ݁ ꒰ Mҽʅҽҽɳιαƈʂ ꒱ ⸝⸝  .ᐟ
                 <p>
                  
 ${\textsf{\color{#FF0000}⚙️ . = Iwec due to my anger issues. But it's alright!I won't hurt you or harass you.But do interact catiously.  "}}$
-  ${\textsf{\color{#FF0000}harass you. But do interact catiously.  "}}$
+ 
                  <p>
                    
   ![watch yo tone](https://github.com/user-attachments/assets/15bba008-70cc-4938-b365-3b2a49818c28)
@@ -58,6 +58,6 @@ ${\textsf{\color{#FF0000}⚙️ . = Iwec due to my anger issues. But it's alrigh
     <p></p>
     🇹​​🇭​​🇮​​🇸​ ​🇭​​🇪​​🇱​​🇵​​🇸​ ​🇼​​🇮​​🇹​​🇭​ ​🇨​​🇷​​🇪​​🇦​​🇹​​🇮​​🇳​​🇬​ ​🇧​​🇴​​🇺​​🇳​​🇩​​🇦​​🇷​​🇮​​🇪​​🇸​ ​🇧​​🇪​​🇹​​🇼​​🇪​​🇪​​🇳​ ​🇲​​🇴​​🇷​​🇹​​🇦​​🇱​​🇸​.
                     <P>
-
+I saw a glitched texts so sorry about it!
                     
                              
