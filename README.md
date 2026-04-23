@@ -15,7 +15,11 @@
 </p>
 <p align=center>
 ${\color{#FFFFFF}DON'T}$ , ${\color{#79FAFF}NOT}$ , ${\color{#008CFF}COPY}$ , ${\color{#0054FF}MY}$ , ${\color{#0026FF}SKINS}$ , ${\color{#001282}NORㅤSCREENㅤSHOT}$
-
+<p>
+ <P>
+  <P>
+   <p align=center>
+ ${\color{#FFFFFF}MAINLY}$  ${\color{#79FAFF}CALL}$  ${\color{#008CFF}ME}$  ${\color{#0054FF}ELITE}$  ${\color{#0026FF}FOR}$  ${\color{#001282}NOW!}$
 <p align=center>
 <img width="650" height="500" alt="image" src="https://github.com/user-attachments/assets/2412d62f-aa4c-4774-950b-4b524eab3ad6" />
 <p align=center>
