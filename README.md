@@ -11,10 +11,10 @@
 <p>
 
  <p align=center>
-  ${\color{#FFFFFF}DON'T}$ , ${\color{#79FAFF}YOU}$ , ${\color{#008CFF}DARE}$ , ${\color{#0054FF}GET}$ , ${\color{#0026FF}NEAR}$ , ${\color{#001282}ME}$ , ${\color{#0500A0}IF  YOU'RE}$ , ${\color{#001382}KNOWN}$ , ${\color{#0026FF}AS}$ , ${\color{#0054FF}PROBLEMATIC.}$
+  ${\color{#FFFFFF}DON'T}$ , ${\color{#79FAFF}YOU}$ , ${\color{#008CFF}DARE}$ , ${\color{#0054FF}GET}$ , ${\color{#0026FF}NEAR}$ , ${\color{#001282}ME}$ , ${\color{#0500A0}IFㅤYOU'RE}$ , ${\color{#001382}KNOWN}$ , ${\color{#0026FF}AS}$ , ${\color{#0054FF}PROBLEMATIC.}$
 </p>
 <p align=center>
-${\color{#FFFFFF}DON'T}$ , ${\color{#79FAFF}NOT}$ , ${\color{#008CFF}COPY}$ , ${\color{#0054FF}MY}$ , ${\color{#0026FF}SKINS}$ , ${\color{#001282}NOR  SCREEN SHOT}$
+${\color{#FFFFFF}DON'T}$ , ${\color{#79FAFF}NOT}$ , ${\color{#008CFF}COPY}$ , ${\color{#0054FF}MY}$ , ${\color{#0026FF}SKINS}$ , ${\color{#001282}NORㅤSCREENㅤSHOT}$
 
 <p align=center>
 <img width="650" height="500" alt="image" src="https://github.com/user-attachments/assets/2412d62f-aa4c-4774-950b-4b524eab3ad6" />
