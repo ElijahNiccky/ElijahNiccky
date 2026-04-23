@@ -1,4 +1,4 @@
-# WORKING! HERE IS A SNEAK PEAK FOR A WHILE
+![Dream Catches](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Dream%20Catches&color=008CFF&style=flat)
 <p align=center>
 <P>
  <img width="2050" height="350" alt="Divider" src="https://github.com/user-attachments/assets/dabe4f39-a27d-4a8b-bdff-db01545705c9" />
