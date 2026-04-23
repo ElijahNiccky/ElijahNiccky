@@ -1,41 +1,12 @@
-# Github rework soon! 
--
-
-ignore old repository. 
-
-# Short intro for people who wants to know boundaries ! ໒꒰ྀི ˶• ༝ •˶ ྀི১
--
+# WORKING! HERE IS A SNEAK PEAK FOR A WHILE
 <p align=center>
+<P>
+ <img width="2050" height="350" alt="Divider" src="https://github.com/user-attachments/assets/dabe4f39-a27d-4a8b-bdff-db01545705c9" />
+ <p align=center>
+ ${\color{#FFFFFF}GREETINGS}$  .  ${\color{#79FAFF}PLEASE}$  .  ${\color{#008CFF}READ}$  .  ${\color{#0054FF}AND}$  .  ${\color{#0026FF}RESPECT}$
+<p align=center>
+ ${\color{#001282} LAYOUTS}$  .  ${\color{#0500A0}WILL}$  . ${\color{#001382}BE}$  .  ${\color{#0026FF}BRIGHT.}$  .  ${\color{#0054FF}LOOK}$ . ${\color{#008CFF}WITH}$ . ${\color{#008CFF}CAUTION.}$
 
-  ***I am no longer Bi-lesbian! my strawpage is a little outdated. So don't believe some info there!***
-<p>
-
--
-
-
-  ***Pansexual / Not a genderfluid but I just like to go by any pronouns!***
-</p>
-
--
-
-***✦Alias:    Elijah  ,  Niccky  ,  Spacer  , Elite  !✦***
-<p>
-
--
-  
-  
-  ***I may be not good at comforting people but I'll try my best!***
-</p>
-
--
+<img width="1266" height="1153" alt="image" src="https://github.com/user-attachments/assets/2412d62f-aa4c-4774-950b-4b524eab3ad6" />
 
 
-
-**Trying my best to be a cud comfort player! anyone can cuddle no matter what person you are ^_✦***
-***Except problematic, homophobes, p3dophiles, etc.***
-
-*   ੈ✩‧₊˚*  ☆⋆｡𖦹°‧★ *
-
--
- 
- **Kin: (heavy)Bassie,  (heavy)Shrimpo, (slight)Vee,  Sprout,  Knify,  Charmy, (heavy)Subspace**
