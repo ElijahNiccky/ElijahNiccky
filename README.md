@@ -16,9 +16,21 @@
  </p>
 </P>
 <p align=center>
-${\color{#FFFFFF}ANY}$  ${\color{#79FAFF}SHIPS}$  ${\color{#008CFF}INT!!}$  
+${\color{#FFFFFF}ALL}$  ${\color{#79FAFF}SHIPS}$  ${\color{#008CFF}INT!!}$   
+ ${\color{#0054FF}EVEN}$   ${\color{#0026FF}IF}$   ${\color{#001382}NOT}$   ${\color{#0500A0}MENTIONED}$  ${\color{#001382}HERE!}$
+<p align=center>
+ <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/eca731d7-638b-48e4-91eb-6669a0cda7e0" />
+ ${\color{#79FAFF}ART'S}$ 
+ <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/3c3bea9f-51a0-401c-a5db-849214fbe451" />  
+${\color{#008CFF}NOT}$ 
+ <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/4e350da7-ab00-41ee-ac32-b7ffbf00208e" />
+  ${\color{#0054FF}MINE.}$
+  <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/becc32c1-164e-4108-bff4-90021c71864e" />
+  ${\color{#0026FF}OK. . . ?}$
+  <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/b0d89ff0-35b8-4187-9bdc-b838d14ca849" />
 
-<img width="350" height="300" alt="image" src="https://github.com/user-attachments/assets/eca731d7-638b-48e4-91eb-6669a0cda7e0" />
+
+
 
 
 
