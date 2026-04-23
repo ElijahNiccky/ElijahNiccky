@@ -6,6 +6,8 @@
  ${\color{#FFFFFF}GREETINGS}$  .  ${\color{#79FAFF}PLEASE}$  .  ${\color{#008CFF}READ}$  .  ${\color{#0054FF}AND}$  .  ${\color{#0026FF}RESPECT}$
 <p align=center>
  ${\color{#001282} LAYOUTS}$  .  ${\color{#0500A0}WILL}$  . ${\color{#001382}BE}$  .  ${\color{#0026FF}BRIGHT.}$  .  ${\color{#0054FF}LOOK}$ . ${\color{#008CFF}WITH}$ . ${\color{#008CFF}CAUTION.}$<img width="250" height="200" alt="image" src="https://github.com/user-attachments/assets/d593180e-bc5f-4b7a-b01e-79134235768b" />
+ <p align=center>
+ ${\color{#FFFFFF}CUDDLE}$  ${\color{#79FAFF}ME}$  ${\color{#008CFF}ANYTIME!}$    .    ${\color{#0054FF}IF}$  ${\color{#0026FF}YOU}$  ${\color{#001282}FEEL}$  ${\color{#0500A0}LONELY!}$
 
 <p align=center>
 <img width="650" height="500" alt="image" src="https://github.com/user-attachments/assets/2412d62f-aa4c-4774-950b-4b524eab3ad6" />
