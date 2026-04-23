@@ -34,7 +34,8 @@ ${\color{#FFFFFF}CREDITS}$  ${\color{#79FAFF}FOR}$  ${\color{#008CFF}DIVIDERS!}$
   <p align=center>
   <img width="550" height="500" alt="image" src="https://github.com/user-attachments/assets/fae12f63-8f83-4858-8f65-8f564ca2acac" />
 <img width="550" height="500" alt="image" src="https://github.com/user-attachments/assets/1fac620a-b2bf-4521-be4e-f7cc61d77153" />
-
+ <P align=center>
+   <img width="2050" height="350" alt="Divider" src="https://github.com/user-attachments/assets/dabe4f39-a27d-4a8b-bdff-db01545705c9" />
 
 
 
