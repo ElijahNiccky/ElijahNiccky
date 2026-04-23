@@ -28,6 +28,14 @@ ${\color{#008CFF}NOT}$
   <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/becc32c1-164e-4108-bff4-90021c71864e" />
   ${\color{#0026FF}OK. . . ?}$
   <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/b0d89ff0-35b8-4187-9bdc-b838d14ca849" />
+<p align=center>
+${\color{#FFFFFF}CREDITS}$  ${\color{#79FAFF}FOR}$  ${\color{#008CFF}DIVIDERS!}$   .   ${\color{#0054FF}LAYOUT}$  ${\color{#0026FF}EDITED}$  ${\color{#001382}BY}$  ${\color{#0500A0}ME!}$
+
+  <p align=center>
+  <img width="550" height="500" alt="image" src="https://github.com/user-attachments/assets/fae12f63-8f83-4858-8f65-8f564ca2acac" />
+<img width="550" height="500" alt="image" src="https://github.com/user-attachments/assets/1fac620a-b2bf-4521-be4e-f7cc61d77153" />
+
+
 
 
 
