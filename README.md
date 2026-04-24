@@ -14,7 +14,7 @@
   ${\color{#FFFFFF}DON'T}$ , ${\color{#79FAFF}YOU}$ , ${\color{#008CFF}DARE}$ , ${\color{#0054FF}GET}$ , ${\color{#0026FF}NEAR}$ , ${\color{#001282}ME}$ , ${\color{#0500A0}IFㅤYOU'RE}$ , ${\color{#001382}KNOWN}$ , ${\color{#0026FF}AS}$ , ${\color{#0054FF}PROBLEMATIC.}$
 </p>
 <p align=center>
-${\color{#FFFFFF}DON'T}$ , ${\color{#79FAFF}NOT}$ , ${\color{#008CFF}COPY}$ , ${\color{#0054FF}MY}$ , ${\color{#0026FF}SKINS}$ , ${\color{#001282}NORㅤSCREENㅤSHOT}$
+${\color{#FFFFFF}DO}$ , ${\color{#79FAFF}NOT}$ , ${\color{#008CFF}COPY}$ , ${\color{#0054FF}MY}$ , ${\color{#0026FF}SKINS}$ , ${\color{#001282}NORㅤSCREENㅤSHOT}$
 <p>
  <P>
   <P>
