@@ -9,7 +9,9 @@
  <p align=center>
  ${\color{#FFFFFF}CUDDLE}$  ${\color{#79FAFF}ME}$  ${\color{#008CFF}ANYTIME!}$    .    ${\color{#0054FF}IF}$  ${\color{#0026FF}YOU}$  ${\color{#001282}FEEL}$  ${\color{#0500A0}LONELY!}$
 <p>
+<div align=center}>
 
+ ${{\colpr{#79faff}Most}}$  ${{\color{#008cff}seen}}$  ${{\color{#0054fg}with}}$  ${{\color{#0026FF}Ted}}$  ${{\color{001282}or}}$  ${{\color{#0500A0}CUDDLE-BUDDIES!}}$
  <p align=center>
   ${\color{#FFFFFF}DON'T}$ , ${\color{#79FAFF}YOU}$ , ${\color{#008CFF}DARE}$ , ${\color{#0054FF}GET}$ , ${\color{#0026FF}NEAR}$ , ${\color{#001282}ME}$ , ${\color{#0500A0}IFㅤYOU'RE}$ , ${\color{#001382}KNOWN}$ , ${\color{#0026FF}AS}$ , ${\color{#0054FF}PROBLEMATIC.}$
 </p>
