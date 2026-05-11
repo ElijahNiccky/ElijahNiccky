@@ -1,4 +1,8 @@
+
 ![Dream Catches](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Dream%20Catches&color=008CFF&style=flat)
+<div align=center>
+**GUYS PLEASE IM SO SORRY IF CUDDLED SOMEONE PROBLEMATIC. LET ME KNOW WHO ARE THE INDIVIDUALS THAT ARE PROBLEMATIC AS I AM SUCH UNAWARE PERSON**
+
 <p align=center>
 <P>
  <img width="2050" height="350" alt="Divider" src="https://github.com/user-attachments/assets/dabe4f39-a27d-4a8b-bdff-db01545705c9" />
