@@ -2,8 +2,7 @@
 ![Dream Catches](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Dream%20Catches&color=008CFF&style=flat)
 <div align=center>
 
- # **LET ME KNOW WHO ARE THE INDIVIDUALS THAT ARE PROBLEMATIC AS I'M AN UNAWARE PERSON**
-**I AM VERY SORRY. I WILL NEVER KNOW IF ITS A PROBLEMATIC PERSON OR NOT PLEASE TELL ME**
+ # ${\color{79FAFF}LETㅤME KNOWㅤWHOㅤAREㅤTHEㅤINDIVIDUALSㅤTHATㅤAREㅤPROBLEMATICㅤASㅤI'MㅤANㅤUNAWAREㅤPERSON ㅤIㅤ AMㅤVERY ㅤSORRY.ㅤI ㅤWILLㅤ NEVERㅤ KNOW ㅤIF ㅤITSㅤA ㅤPROBLEMATIC PERSON ㅤORㅤ NOT ㅤPLEASE ㅤTELL ME}$
 <p align=center>
 <P>
  <img width="2050" height="350" alt="Divider" src="https://github.com/user-attachments/assets/dabe4f39-a27d-4a8b-bdff-db01545705c9" />
