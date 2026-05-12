@@ -2,7 +2,7 @@
 ![Dream Catches](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Dream%20Catches&color=008CFF&style=flat)
 <div align=center>
 
- # ${\color{79FAFF}LETㅤME KNOWㅤWHOㅤAREㅤTHEㅤINDIVIDUALSㅤTHATㅤAREㅤPROBLEMATICㅤASㅤI'MㅤANㅤUNAWAREㅤPERSON ㅤIㅤ AMㅤVERY ㅤSORRY.ㅤI ㅤWILLㅤ NEVERㅤ KNOW ㅤIF ㅤITSㅤA ㅤPROBLEMATICㅤ PERSON ㅤORㅤ NOT ㅤPLEASE ㅤTELL ME}$
+ # LETㅤME KNOWㅤWHOㅤAREㅤTHEㅤINDIVIDUALSㅤTHATㅤAREㅤPROBLEMATICㅤASㅤI'MㅤANㅤUNAWAREㅤPERSON ㅤIㅤ AMㅤVERY ㅤSORRY.ㅤI ㅤWILLㅤ NEVERㅤ KNOW ㅤIF ㅤITSㅤA ㅤPROBLEMATICㅤ PERSON ㅤORㅤ NOT ㅤPLEASE ㅤTELL ME
 <p align=center>
 <P>
  <img width="2050" height="350" alt="Divider" src="https://github.com/user-attachments/assets/dabe4f39-a27d-4a8b-bdff-db01545705c9" />
