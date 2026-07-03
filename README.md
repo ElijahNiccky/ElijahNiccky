@@ -1,3 +1,4 @@
+<img width="2699" height="2341" alt="Untitled687_20260704074128" src="https://github.com/user-attachments/assets/537c64a4-cf0d-4ccf-a500-f79e9fee1f60" />
 
 
  
@@ -25,4 +26,6 @@
    # ${{\color{#AD0013}B4CKㅤT0ㅤB4CK,ㅤ0NㅤTH3ㅤB4CKㅤT0ㅤB4CK}}$  ${{\color{#5C3C3B}B4CKㅤT0ㅤB4CK,ㅤN'ㅤSP1NN1N'ㅤ0NㅤTH3ㅤB4CK!}}$  ${{\color{#907F7C}B4CKㅤT0ㅤB4CKㅤ0NㅤTH3ㅤTURN4BL3S'ㅤB4CK!}}$  ${{\color{#3E1617}SP1NN1N'ㅤ0NㅤTH3ㅤTURN,ㅤN'ㅤSP1NN1N'ㅤ0NㅤTH3ㅤTURN4BL3S!}}$  ${{\color{#3E1617}B4CKㅤT0ㅤB4CK!}}$  ${{\color{#AD0013}H3Y!}}$  ${{\color{#59463B}H3Y!}}$  ${{\color{#5C3C3B}H3Y!}}$  ${{\color{#AD0013}H3Y!}}$  ${{\color{#2E000F}H3Y!}}$  
 
   
+<img width="2699" height="2341" alt="Untitled687_20260704074553" src="https://github.com/user-attachments/assets/24d3fe41-1fbf-41f2-9929-aae2c41e8f2f" />
+![Untitled687_20260704074128](https://github.com/user-attachments/assets/5a95f11e-1ba7-4391-9c1c-5f9827ebd35f)
 
