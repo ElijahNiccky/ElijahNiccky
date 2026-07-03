@@ -1,3 +1,4 @@
+<img width="2699" height="2341" alt="Untitled687_20260704074128" src="https://github.com/user-attachments/assets/199ac9d7-bcf5-452f-b3e7-ff836dfb24f2" />
 
 ![Sk8ing Streak](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Sk8ing%20Streak&color=8B0000&style=flat)
 <div align=center>
