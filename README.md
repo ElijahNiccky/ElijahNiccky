@@ -65,8 +65,13 @@ ${\color{#FFFFFF}CREDITS}$  ${\color{#79FAFF}FOR}$  ${\color{#008CFF}DIVIDERS!}$
 ‪
 
 ${\color{#001382}OhㅤhowㅤIㅤwishedㅤtoㅤbeㅤmentionedㅤinㅤptㅤlist}$ 👀👀👀
+<img width="2699" height="2341" alt="Untitled687_20260702192847" src="https://github.com/user-attachments/assets/32c11d46-fe33-4c38-b6ec-7e68d777f2cf" />
 
+<img width="2699" height="2341" alt="Untitled687_20260701150400_edit_1054610299520978" src="https://github.com/user-attachments/assets/1959a7a5-37cf-4a97-bb53-68de5f95e964" />
+<img width="2699" height="2341" alt="Untitled687_20260702191209" src="https://github.com/user-attachments/assets/cd08eaf8-bd86-4533-bc14-1a567f3f05fd" />
 
+<img width="2699" height="2341" alt="Untitled687_20260702193032" src="https://github.com/user-attachments/assets/0cf6385c-46ac-4bc4-b38a-8bc3f1208748" />
+<img width="2699" height="2341" alt="Untitled687_20260702192847" src="https://github.com/user-attachments/assets/1ed9dcb4-b3bf-4c93-b7ef-35d5ca1bf900" />
 
 
 
