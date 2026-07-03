@@ -1,8 +1,3 @@
-<img width="2699" height="2341" alt="Untitled687_20260704074128" src="https://github.com/user-attachments/assets/537c64a4-cf0d-4ccf-a500-f79e9fee1f60" />
-
-
- 
-
 
 ![Sk8ing Streak](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Sk8ing%20Streak&color=8B0000&style=flat)
 <div align=center>
@@ -27,5 +22,6 @@
 
   
 <img width="2699" height="2341" alt="Untitled687_20260704074553" src="https://github.com/user-attachments/assets/24d3fe41-1fbf-41f2-9929-aae2c41e8f2f" />
-![Untitled687_20260704074128](https://github.com/user-attachments/assets/5a95f11e-1ba7-4391-9c1c-5f9827ebd35f)
+
+
 
