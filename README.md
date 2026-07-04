@@ -5,7 +5,8 @@
 
   #  ${\color{#AD0013}ᛝ}$     ${\color{#AD0013}WSP!}$  ${\color{#AD0013}.ᐟ.ᐟ}$
 
-
+___YES ITS LEETSPEAK.___
+-
    ${{\color{#AD0013}1fㅤy0uㅤc4ntㅤr34dㅤ1t}}$  
   
    ${\color{#AD0013}Myㅤn4m3ㅤ1s}$   ${{\color{#59463b}Ｓ０Ｒ３Ｎ}}$  ${{\color{#AD0013}0r}}$  ${{\color{#59463b}ＳＫ１}}$
