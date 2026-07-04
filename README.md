@@ -1,4 +1,4 @@
-<img width="2699" height="2341" alt="Untitled687_20260704074128" src="https://github.com/user-attachments/assets/199ac9d7-bcf5-452f-b3e7-ff836dfb24f2" />
+
 
 ![Sk8ing Streak](https://komarev.com/ghpvc/?username=ElijahNiccky&label=Sk8ing%20Streak&color=8B0000&style=flat)
 <div align=center>
@@ -21,8 +21,11 @@
    
    # ${{\color{#AD0013}B4CKㅤT0ㅤB4CK,ㅤ0NㅤTH3ㅤB4CKㅤT0ㅤB4CK}}$  ${{\color{#5C3C3B}B4CKㅤT0ㅤB4CK,ㅤN'ㅤSP1NN1N'ㅤ0NㅤTH3ㅤB4CK!}}$  ${{\color{#907F7C}B4CKㅤT0ㅤB4CKㅤ0NㅤTH3ㅤTURN4BL3S'ㅤB4CK!}}$  ${{\color{#3E1617}SP1NN1N'ㅤ0NㅤTH3ㅤTURN,ㅤN'ㅤSP1NN1N'ㅤ0NㅤTH3ㅤTURN4BL3S!}}$  ${{\color{#3E1617}B4CKㅤT0ㅤB4CK!}}$  ${{\color{#AD0013}H3Y!}}$  ${{\color{#59463B}H3Y!}}$  ${{\color{#5C3C3B}H3Y!}}$  ${{\color{#AD0013}H3Y!}}$  ${{\color{#2E000F}H3Y!}}$  
 
-  
-<img width="2699" height="2341" alt="Untitled687_20260704074553" src="https://github.com/user-attachments/assets/24d3fe41-1fbf-41f2-9929-aae2c41e8f2f" />
+❤︎⁠
+${{\color{#AD0013}D0NN3<3}}$ <a href="https://github.com/kitsunekozz"><img src="https://github.com/user-attachments/assets/24d3fe41-1fbf-41f2-9929-aae2c41e8f2f" width="350" align=RIGHT>
 
-
+❤︎⁠
+${{\color{#AD0013}K1T<3}}$  <a href="https://github.com/shurilong"><img src="https://github.com/user-attachments/assets/199ac9d7-bcf5-452f-b3e7-ff836dfb24f2" width="350" align=LEFT>
+<P>
+<img width="350" height="353" alt="Untitled687_20260704074128" src="https://github.com/user-attachments/assets/199ac9d7-bcf5-452f-b3e7-ff836dfb24f2" />
 
