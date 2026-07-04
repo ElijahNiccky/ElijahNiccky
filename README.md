@@ -27,5 +27,5 @@ ${{\color{#AD0013}D0NN3<3}}$ <a href="https://github.com/kitsunekozz"><img src="
 ❤︎⁠
 ${{\color{#AD0013}K1T<3}}$  <a href="https://github.com/shurilong"><img src="https://github.com/user-attachments/assets/199ac9d7-bcf5-452f-b3e7-ff836dfb24f2" width="350" align=LEFT>
 <P>
-<img width="350" height="353" alt="Untitled687_20260704074128" src="https://github.com/user-attachments/assets/199ac9d7-bcf5-452f-b3e7-ff836dfb24f2" />
+
 
