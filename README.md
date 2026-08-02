@@ -24,6 +24,7 @@
       <h1> ${\color{#9e7a83}Son its so big}$ </h1>
       <p> ${\color{#9e7a83}꒰১✧໒꒱}$ ${\color{#904174}Pansexual}$ ${\color{#7b325d}꒰১✧໒꒱}$ </p>
      <p> ${\color{#9e7a83}Call}$ ${\color{#904174}me}$ ${\color{#7b325d}ELIJAH}$ ${\color{#AD166E}Or}$ ${\color{#9e7a83}ask.}$ </p>
+     <p> ${\color{#9e7a83}Any}$ ${\color{#904174}prns}$ ${\color{#7b325d}꒰১✧໒꒱}$ ${\color{#ad166e}Third}$ ${\color{#9e7a83}Person}$ </p>
     </td>
   </tr>
 </table>
