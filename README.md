@@ -13,4 +13,17 @@
  <img src="https://github.com/user-attachments/assets/edd55bf6-f02c-4d5e-a8ca-0c3df64911b9" length="750" width="750"/> 
 
 
+<h1>test zone</h1>
 
+<table>
+  <tr>
+    <td valign="top" width="450">
+      <img src="https://github.com/user-attachments/assets/edd55bf6-f02c-4d5e-a8ca-0c3df64911b9" width="100%" alt="Left Visual">
+    </td>
+    <td valign="top">
+      <h1> ${\color{#9e7a83}Son its so big}$ </h1>
+      <p> ${\color{#9e7a83}꒰১✧໒꒱}$ ${\color{#904174}Pansexual}$ ${\color{#7b325d}꒰১✧໒꒱}$ </p>
+     <p> ${\color{#9e7a83}Call}$ ${\color{#904174}me}$ ${\color{#7b325d}ELIJAH}$ ${\color{#AD166E}Or}$ ${\color{#9e7a83}ask.}$ </p>
+    </td>
+  </tr>
+</table>
