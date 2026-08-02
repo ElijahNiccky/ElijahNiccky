@@ -15,7 +15,7 @@
 
 <h1>test zone</h1>
 
-<table>
+<table border="0" cellpadding="0" cellspacing="0">
   <tr>
     <td valign="top" width="450">
       <img src="https://github.com/user-attachments/assets/edd55bf6-f02c-4d5e-a8ca-0c3df64911b9" width="100%" alt="Left Visual">
@@ -25,6 +25,11 @@
       <p> ${\color{#9e7a83}꒰১✧໒꒱}$ ${\color{#904174}Pansexual}$ ${\color{#7b325d}꒰১✧໒꒱}$ </p>
      <p> ${\color{#9e7a83}Call}$ ${\color{#904174}me}$ ${\color{#7b325d}ELIJAH}$ ${\color{#AD166E}Or}$ ${\color{#9e7a83}ask.}$ </p>
      <p> ${\color{#9e7a83}Any}$ ${\color{#904174}prns}$ ${\color{#7b325d}꒰১✧໒꒱}$ ${\color{#ad166e}Third}$ ${\color{#9e7a83}Person}$ </p>
+     <br>
+     <p> ${\color{#9e7a83}16+,}$ ${\color{#904174}IWC}$</p>
     </td>
   </tr>
 </table>
+
+
+
