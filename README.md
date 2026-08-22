@@ -3,7 +3,7 @@
 
 <div align=center>
 
-<img src="https://github.com/user-attachments/assets/72394481-077d-4d5e-9a01-4625135f12d0" width=480 length=480/>
+<img src="https://github.com/user-attachments/assets/72394481-077d-4d5e-9a01-4625135f12d0" width=800 length=800/>
 
 ![CREATIONS](https://komarev.com/ghpvc/?username=ElijahNiccky&label=CREATIONS%20&color=ff7fd8&style=flat)
 
@@ -32,3 +32,6 @@
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=&pause=1000&color=C84FA9D7&width=435&lines=MY+GREATEST+INVENTION!!;LETS+SEE+IF+MY+HYPOTHESIS+IS+CORRECT!;I+AM+THE+GREATEST+SUBSPACE+T.+MINE!!!;LET+THE+EXPERIMENT+COMMENCE!!)](https://git.io/typing-svg)
+
+
+<img src="https://github.com/user-attachments/assets/96a50949-6b81-4d03-8d5b-17749cefb0a5" width=800 length=800/>
