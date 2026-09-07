@@ -32,8 +32,10 @@
 <div style="display: flex; gap: 24px;">
 <p align="center"> <a href="https://elijah.atabook.org/">
   <img src="https://github.com/user-attachments/assets/4ec50ddb-f4a6-4c1e-ae17-502ba8b52c25" width=200> 
-<p align="center"> <a href="github.com/shurilong">
- <img src=https://github.com/user-attachments/assets/abdd76d1-af13-4b53-9fbb-df007df56197 width=150>
+ <a href="https://github.com/shurilong">
+ <img src="https://github.com/user-attachments/assets/abdd76d1-af13-4b53-9fbb-df007df56197" width="150">
+<a href="https://github.com/kitsunekozz">
+ <img src="https://github.com/user-attachments/assets/1f49be7e-e6d0-4c24-afa1-a99be7edfc5d" width="150">
 </div>
 
 
