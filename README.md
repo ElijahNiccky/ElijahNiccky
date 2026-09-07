@@ -29,6 +29,12 @@
   </tr>
 </table>
 
+<div style="display: flex; gap: 24px;">
+<p align="center"> <a href="https://elijah.atabook.org/">
+  <img src="https://github.com/user-attachments/assets/4ec50ddb-f4a6-4c1e-ae17-502ba8b52c25" width=200> 
+<p align="center"> <a href="github.com/shurilong ">
+ <img src=https://github.com/user-attachments/assets/abdd76d1-af13-4b53-9fbb-df007df56197 width=150>
+</div>
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=&pause=1000&color=C84FA9D7&width=435&lines=MY+GREATEST+INVENTION!!;LETS+SEE+IF+MY+HYPOTHESIS+IS+CORRECT!;I+AM+THE+GREATEST+SUBSPACE+T.+MINE!!!;LET+THE+EXPERIMENT+COMMENCE!!)](https://git.io/typing-svg)
