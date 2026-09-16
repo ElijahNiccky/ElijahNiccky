@@ -19,7 +19,7 @@
     <td valign="top">
       <h1> ${\color{#9e7a83}︴INFO!︴}$ </h1>
       <p> ${\color{#9e7a83}꒰১✧໒꒱}$ ${\color{#904174}Pansexual}$ ${\color{#7b325d}꒰১✧໒꒱}$ </p>
-     <p> ${\color{#9e7a83}Call}$ ${\color{#904174}me}$ ${\color{#7b325d}ELIJAH}$ ${\color{#AD166E}Or}$ ${\color{#9e7a83}ask.}$ </p>
+     <p> ${\color{#9e7a83}Call}$ ${\color{#904174}me}$ ${\color{#7b325d}ELIJAH}$ ${\color{#AD166E}Or}$ ${\color{#9e7a83}SKI.}$ </p>
      <p> ${\color{#9e7a83}Any}$ ${\color{#904174}prns}$ ${\color{#7b325d}꒰১✧໒꒱}$ ${\color{#ad166e}Ileism}$ </p>
      <br>
      <p> ${\color{#9e7a83}16+}$ ${\color{#904174}13-}$  ${\color{#7b325d}IWC}$ </p>
