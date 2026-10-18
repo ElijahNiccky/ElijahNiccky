@@ -22,7 +22,7 @@
      <p> ${\color{#9e7a83}Call}$ ${\color{#904174}me}$ ${\color{#7b325d}ELIJAH}$ ${\color{#AD166E}Or}$ ${\color{#9e7a83}SKI.}$ </p>
      <p> ${\color{#9e7a83}Any}$ ${\color{#904174}prns}$ ${\color{#7b325d}꒰১✧໒꒱}$ ${\color{#ad166e}Ileism}$ </p>
      <br>
-     <p> ${\color{#9e7a83}16+}$ ${\color{#904174}13-}$  ${\color{#7b325d}IWC}$ </p>
+     <p> ${\color{#9e7a83}any}$ ${\color{#904174}age}$  ${\color{#7b325d}int!}$ ${\color#ad166e}just}$ ${\color{#9e7a83}don't}$   ${\color{#9e7a83}be}$ ${\color{#904174}weird.}$ </p>
    <br>
       <p> ${\color{#9e7a83}Subspace}$ ${\color{#904174}꒰ঌ✶໒꒱}$ ${\color{#7b325d}Yumeshipper!}$</p>
     </td>
