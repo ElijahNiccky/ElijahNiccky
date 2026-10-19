@@ -5,8 +5,8 @@
 
 <img src="https://github.com/user-attachments/assets/72394481-077d-4d5e-9a01-4625135f12d0" width=800 length=800/>
  
- ![CREATIONS](https://komarev.com/ghpvc/?username=ElijahNiccky&label=CREATIONS%20&color=ff7fd8&style=flat)
 
+ ![CREATIONS](https://komarev.com/ghpvc/?username=ElijahNiccky&label=CREATIONS%20&color=ff7fd8&style=flat)
 
  ${\color{#9e7a83}── .✦}$ ${\color{#904174}𝗚𝗿𝗲𝗲𝘁𝗶𝗻𝗴𝘀!}$ ${\color{#7b325d}.ᐟ.ᐟ}$  
 
