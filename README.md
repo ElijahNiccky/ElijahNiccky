@@ -39,7 +39,6 @@
 </div>
  
 
-${\color{#9e7a83}If ㅤyou ㅤrequestedㅤ me ㅤin ㅤstrawpage ㅤforㅤ art, ㅤask ㅤme ㅤforㅤ my ㅤPatreon! ㅤdw ㅤthere'sㅤ no ㅤpay ㅤwall ㅤto ㅤseeㅤit}$
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=&pause=1000&color=C84FA9D7&width=435&lines=MY+GREATEST+INVENTION!!;LETS+SEE+IF+MY+HYPOTHESIS+IS+CORRECT!;I+AM+THE+GREATEST+SUBSPACE+T.+MINE!!!;LET+THE+EXPERIMENT+COMMENCE!!)](https://git.io/typing-svg)
 
